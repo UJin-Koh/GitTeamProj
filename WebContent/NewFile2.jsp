@@ -1,3 +1,0 @@
-chao
-oi
-obrigado
